@@ -1,4 +1,4 @@
-### boas vindas ao meu perfil 💙
+### benvindo ao meu perfil 💙
 
 meu nome e Ariane Aurora
 
